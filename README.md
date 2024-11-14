@@ -1,2 +1,0 @@
-# mine
-stunning octo googles
